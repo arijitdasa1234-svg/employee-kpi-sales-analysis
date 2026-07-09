@@ -167,8 +167,8 @@ Aspiring Machine Learning Engineer | Data Analyst
 
 ### Connect with me
 
-* LinkedIn: https://www.linkedin.com/in/YOUR-LINKEDIN
-* GitHub: https://github.com/YOUR-GITHUB-USERNAME
+* LinkedIn: https://www.linkedin.com/in/arijit-das-2197921bb/
+* GitHub: https://github.com/arijitdasa1234-svg
 
 ---
 
